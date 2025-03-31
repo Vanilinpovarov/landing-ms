@@ -1,1 +1,1 @@
-[index.html..txt](https://github.com/user-attachments/files/19540023/index.html.
+https://github.com/user-attachments/files/19540023/index.html.
